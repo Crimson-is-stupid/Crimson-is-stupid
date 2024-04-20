@@ -1,6 +1,4 @@
-### Hi there 👋
-
-Hello 
+### Hey There 
 
 I'm a dumb programmer who forgets how to do anything in an instant and i also play friday night funkin alot and program in it
 
